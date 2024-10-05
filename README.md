@@ -5,8 +5,12 @@ Here is where we put our code to share, fork, etc for the AWS class for Theo (Th
 
 Roderick Moore
 
-Brimah Kamara 
+Brimah Khalil Kamara
 
 Alastair Davis
 
 Key Lewis
+
+Kendrick Dankyi
+
+Eleyah Avadliel-El
