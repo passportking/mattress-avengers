@@ -28,3 +28,5 @@ Daiynan Bowen
 Krane Dammy
 
 Tyrell A. Neg
+
+Derick Peters
