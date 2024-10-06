@@ -18,3 +18,13 @@ Key Lewis
 Kendrick Dankyi
 
 Eleyah Avadliel-El
+
+Dee Jones
+
+Darren Jones
+
+Daiynan Bowen
+
+Krane Dammy
+
+Tyrell A. Neg
